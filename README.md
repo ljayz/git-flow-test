@@ -1,0 +1,3 @@
+# GIT FLOW README
+
+Lorem ipsum dolor sit amet, est labitur voluptua periculis ex, aeque reformidans cum ex. Est eius ubique cu, no decore persecuti constituto quo, mei summo adipiscing ea. Veritus appetere electram te his, eos cu delectus deterruisset, ad ius suas admodum dolores. Id pri simul facilisis, te ubique appellantur mea, nemore temporibus at his. Atqui falli nobis nec in, ea ius probo intellegat consectetuer, sit veniam ignota scripserit et.
